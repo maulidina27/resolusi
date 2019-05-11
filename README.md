@@ -1,0 +1,2 @@
+# resolusi
+code apapun
